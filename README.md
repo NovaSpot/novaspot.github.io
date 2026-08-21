@@ -1,0 +1,1 @@
+# novaspot.github.io
